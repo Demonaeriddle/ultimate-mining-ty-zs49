@@ -1,4 +1,4 @@
-#  
+#  smart ultimate mining tycoon Script is the best ultimate mining tycoon Script, featuring instant win and infinite resources. Safe and powerful for
 
 
 
